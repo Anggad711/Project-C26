@@ -1,0 +1,3 @@
+Please note that, this is the approximate knowledge I have of making Pitha Guri, as I've only seen my father make it, and I haven't done it myself yet.
+I suggest you search it up on internet, or maybe ask a Bengali/Assamese friend of yours before following my instructions.....
+What I made is for my project, Have a nice day ahead :)
