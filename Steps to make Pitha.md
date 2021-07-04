@@ -5,3 +5,4 @@ Then, heat the pan at high temperature for 3-4 mins, after which, with a serving
 after 1-2 minutes, turn the Pitha ooverside and let it be for a few seconds.
 Repeat this for as much mixture of rice powder and milk you have
 After it's done , put it on your plate and you have yourself an Assamese dish :)
+It is usually consumed with a side dish like Sugar or sweet curd, but you may have it with any other side dish, it doesn't spoil anything.
